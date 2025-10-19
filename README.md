@@ -1,2 +1,3 @@
-# likenewllc.github.io
-static site
+# Like New LLC
+
+Environmental Surface Cleaning Pros
